@@ -1,6 +1,6 @@
 Frederik H. Gjørup, Dr.  
 
-Postdoc at Department of Chemistry & iNANO, Aarhus University, Denmark  
+Academic technical staff at Department of Chemistry & iNANO, Aarhus University, Denmark  
 E-mail: fgjorup@chem.au.dk  
 ORCID ID: https://orcid.org/0000-0003-3902-0247  
 
